@@ -1,4 +1,9 @@
 # GRE_PREP
+
+https://drive.google.com/drive/folders/19jj86h3dKYAluo76zGUh5ST0g1QuILm7?usp=sharing
+
+https://drive.google.com/drive/folders/1nrrVvmpOfTDhdB67ikoUOnQIFob9-5DM?usp=sharing ( Rithan material) 
+
 ## This is a guide for 'How one can prepare for GRE within a month's duration.'
 
 ### Note - You will find a lot of material for GRE Prep online apart from the tons of online classes. This generally leads to a lot of confusion and students end up wasting time skimming through everything trying to figure out how to structure their prep. Here, I along with my friend, Dhruva Barfiwala aim to give you that structure so that you can focus your prep according to that and make the most of the time you dedicate for this preparation.
