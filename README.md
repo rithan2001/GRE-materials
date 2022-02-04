@@ -1,6 +1,6 @@
 # GRE_PREP
 
-https://drive.google.com/drive/folders/19jj86h3dKYAluo76zGUh5ST0g1QuILm7?usp=sharing
+https://drive.google.com/drive/folders/19jj86h3dKYAluo76zGUh5ST0g1QuILm7?usp=sharing ( contains materials from all institution)
 
 https://drive.google.com/drive/folders/1nrrVvmpOfTDhdB67ikoUOnQIFob9-5DM?usp=sharing ( Rithan material) 
 
